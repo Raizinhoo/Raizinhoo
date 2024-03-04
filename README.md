@@ -1,5 +1,6 @@
-### Raí delas
+### Raí dela
 
-![3dgifmaker55663](https://user-images.githubusercontent.com/99194148/186736202-2547cb8c-9459-419e-a6da-d5135dcd84e6.gif)
+![bea7fa407ad38787e47136b25c038d2d_w200](https://github.com/Raizinhoo/Raizinhoo/assets/99194148/84488952-837a-4a18-987e-bf9973403ddf)
+
 
 
